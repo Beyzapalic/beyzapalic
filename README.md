@@ -21,8 +21,11 @@ UI/UX tasarımı ve iyileştirme stratejileri
 📫 Benimle iletişime geçmek için:
 
 E-posta: beyzapalic34@gmail.com
+
 LinkedIn: (https://www.linkedin.com/in/beyza-%C5%9F-6144931a9/)
+
 GitHub: (https://github.com/Beyzapalic)
+
 Görüşmek üzere! 👋
 
 Here are some ideas to get you started:
